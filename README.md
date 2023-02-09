@@ -1,16 +1,13 @@
-### Hi there 👋
+Amit_Singh/bestuser03
 
-<!--
-**singhamit14/singhamit14** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Hi there 🙋‍♂️
 
-Here are some ideas to get you started:
+I'm good learner and looking to solve real world problem, I have a passion for learning and sharing my knowledge with other as publicly as possible. If you found value in something I have created, please feel free to give me a shout out @bestuser03 or give ❤️ on mail. Feel free to reach out in case you want to just get in touch also.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Reach Me :-)
+
+Mail- singhamit.iot@gmail.com
+
+Twitter- https://www.facebook.com/profile.php?id=100006163026845
+
+Linkedln- https://www.linkedin.com/in/amit-singh-6b9288249/
