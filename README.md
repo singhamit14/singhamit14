@@ -1,8 +1,8 @@
-Amit_Singh/bestuser03
+Amit_Singh/singhamit14
 
 Hi there 🙋‍♂️
 
-I'm good learner and looking to solve real world problem, I have a passion for learning and sharing my knowledge with other as publicly as possible. If you found value in something I have created, please feel free to give me a shout out @bestuser03 or give ❤️ on mail. Feel free to reach out in case you want to just get in touch also.
+I'm good learner and looking to solve real world problem, I have a passion for learning and sharing my knowledge with other as publicly as possible. If you found value in something I have created, please feel free to give me a shout out singhamit14 or give ❤️ on mail. Feel free to reach out in case you want to just get in touch also.
 
 Reach Me :-)
 
